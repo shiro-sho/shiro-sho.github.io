@@ -1,0 +1,1 @@
+# shiro-sho.github.io
